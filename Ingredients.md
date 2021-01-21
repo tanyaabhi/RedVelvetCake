@@ -1,0 +1,2 @@
+To make batter for cake: 1 cup flour, 3/4 cup sugar, 1 teaspoon baking powder, half teaspoon baking soda, pinch of salt, 2 tablespoon cocoa powder, half cup melted butter, 3/4 cup milk, 3-4 drops of vanilla essence, 2-3 drops of red food color, some choco chips.
+To make frosting for cake: 4 tablespoon fresh cream, 2 tablespoon powdered sugar, some colored sprinklers.

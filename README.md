@@ -1,0 +1,1 @@
+Red Velvet Cake is made with cocoa powder and milk etc. The chemical reaction between these ingredients help give cake a deep maroon color that is often enhanced by extra food colour.
